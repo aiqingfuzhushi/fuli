@@ -6,7 +6,7 @@
 
 ### 自助购买：
 #### [购买教程点击查看](http://t.cn/Rr9TkSX)
-####  
+####  .
 #### [1.1常规分类资源点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
 #### [1.2常规资源购买点击查看](http://www.junfaka.com/cay/798FEE2F87A601C6)
 
