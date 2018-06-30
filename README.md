@@ -16,4 +16,4 @@
 #### [3.1 网红系列资源 点击查看](https://pan.baidu.com/s/1u8HjfxkUPQh0NYINV0lMHA)
 #### [3.2 网红资源购买 点击查看](http://www.junfaka.com/cay/DF55F6FC4A692FD3)
 
-### 若不会自助购买，请直接在奥豆咨询购买。
+### 若不会自助购买，或付款不成功，请直接在奥豆咨询购买。
