@@ -9,7 +9,7 @@
 #### 若微信手机支付失败，请使用支付宝或微信扫码支付。
 ####  .
 #### [1.1 常规分类资源 点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
-#### [1.2 常规资源购买 点击查看](http://www.junfaka.com/cay/798FEE2F87A601C6)
+#### [1.2 常规资源购买 点击查看](https://w.url.cn/s/AntphZl)
 
 #### [2.1 明星分类资源 点击查看](https://pan.baidu.com/s/1KNqQYV-bRUQASvylI7Awig)
 #### [2.2 明星资源购买 点击查看](http://www.junfaka.com/cay/12BF376DF09DC570)
