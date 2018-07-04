@@ -5,7 +5,6 @@
 #### [3、网红资源预览图 点击查看](http://t.cn/Rr83SCY)
 
 ### 自助购买：
-#### [购买教程 点击查看](http://t.cn/RreMpDL)
 #### 若微信手机支付失败，请使用支付宝或微信扫码支付。
 ####  .
 #### [1.1 常规分类资源 点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
