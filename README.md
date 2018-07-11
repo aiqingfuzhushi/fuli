@@ -7,9 +7,9 @@
 
 ###  自助购买：
 ### [购买教程 点击查看](http://t.cn/RreMpDL)
-#### 若微信手机支付失败，请使用支付宝或微信扫码支付。
+#### 若出现二维码，请截图后，打开微信扫描时导入此二维码付款。或使用其他支付。
 #### [1.1 常规分类资源 点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
-#### [1.2 常规资源购买 点击查看](http://www.junfaka.com/cay/56121921DD2DE769)
+#### [1.2 常规资源购买 点击查看](http://t.cn/RduX4rb)
 #### [2.1 明星分类资源 点击查看](https://pan.baidu.com/s/1KNqQYV-bRUQASvylI7Awig)
 #### [2.2 明星资源购买 点击查看](http://www.junfaka.com/cay/6D553B9151091C22)
 #### [3.1 网红系列资源 点击查看](https://pan.baidu.com/s/1u8HjfxkUPQh0NYINV0lMHA)
