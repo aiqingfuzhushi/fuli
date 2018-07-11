@@ -15,6 +15,6 @@
 #### [3.1 网红系列资源 点击查看](https://pan.baidu.com/s/1u8HjfxkUPQh0NYINV0lMHA)
 #### [3.2 网红资源购买 点击查看](http://t.cn/Rdupe0H)
 #### [4.1 韩国限制级电影资源 点击查看](https://pan.baidu.com/s/1PzuX-UHQ9xqkgcZiezd47Q)
-#### [4.2 韩国限制级电影购买 点击查看](http://www.junfaka.com/cay/A3FC981843ED25FD)
+#### [4.2 韩国限制级电影购买 点击查看](http://t.cn/RduTm0D)
 ### [购买教程 点击查看](http://t.cn/RreMpDL)
 #### 若不会自助购买，或付款不成功，请直接在奥豆咨询购买
