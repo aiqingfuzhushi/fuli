@@ -7,7 +7,7 @@
 
 ###  自助购买：
 
-#### 若出现二维码，请截图后，打开微信扫描时导入此二维码付款。或使用其他支付。
+#### 若出现二维码，请截图，然后打开微信扫描时导入此二维码付款。或使用其他支付。
 #### [1.1 常规分类资源 点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
 #### [1.2 常规资源购买 点击查看](http://t.cn/RduX4rb)
 #### [2.1 明星分类资源 点击查看](https://pan.baidu.com/s/1KNqQYV-bRUQASvylI7Awig)
@@ -16,5 +16,5 @@
 #### [3.2 网红资源购买 点击查看](http://t.cn/Rdupe0H)
 #### [4.1 韩国限制级电影资源 点击查看](https://pan.baidu.com/s/1PzuX-UHQ9xqkgcZiezd47Q)
 #### [4.2 韩国限制级电影购买 点击查看](http://t.cn/RduTm0D)
-### [购买教程 点击查看](http://t.cn/RreMpDL)
+
 #### 若不会自助购买，或付款不成功，请直接在奥豆咨询购买
