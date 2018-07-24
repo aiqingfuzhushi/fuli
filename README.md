@@ -18,7 +18,7 @@
 #### [2.1 明星分类资源 点击查看](https://pan.baidu.com/s/1KNqQYV-bRUQASvylI7Awig)
 #### [2.2 明星资源购买 点击查看](http://957ka.com/liebiao/44D7C090A02CB6AE)
 #### [3.1 网红系列资源 点击查看](https://pan.baidu.com/s/1u8HjfxkUPQh0NYINV0lMHA)
-#### [3.2 网红资源购买 点击查看](http://t.cn/Rdupe0H)
+#### [3.2 网红资源购买 点击查看](http://957ka.com/liebiao/BEB4C29F821AE6FA)
 #### [4.1 韩国限制级电影资源 点击查看](https://pan.baidu.com/s/1PzuX-UHQ9xqkgcZiezd47Q)
 #### [4.2 韩国限制级电影购买 点击查看](http://t.cn/RduTm0D)
 
