@@ -12,7 +12,6 @@
 #### .
 ###  自助购买：
 
-#### 若出现二维码，请截图，然后打开微信扫描时导入此二维码付款。或使用其他支付。
 #### [1.1 常规分类资源 点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
 #### [2.1 明星分类资源 点击查看](https://pan.baidu.com/s/1KNqQYV-bRUQASvylI7Awig)
 #### [3.1 网红系列资源 点击查看](https://pan.baidu.com/s/1u8HjfxkUPQh0NYINV0lMHA)
