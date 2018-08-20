@@ -12,9 +12,9 @@
 #### .
 ###  自助购买：
 
-#### [1.1 常规分类资源 点击查看](https://pan.baidu.com/s/1csVBGDcM6KWLFZobRlGHmg)
-#### [2.1 明星分类资源 点击查看](https://pan.baidu.com/s/1KNqQYV-bRUQASvylI7Awig)
-#### [3.1 网红系列资源 点击查看](https://pan.baidu.com/s/1u8HjfxkUPQh0NYINV0lMHA)
-#### [3.2 全部资源购买 点击购买](https://www.fakajun.com/space/1776898375.html)
+#### [1 常规分类高质量资源 点击查看](https://pan.baidu.com/s/15_HMDUEEpccfy6ZqWRr7yQ)
+#### [2 明星分类高质量资源 点击查看](https://pan.baidu.com/s/1cDHoipm4pRmLZMq0ECiMdg)
+#### [3 网红系列高质量资源 点击查看](https://pan.baidu.com/s/157AHLmwPoqL4RHI_o57Gvg)
+#### [全部资源购买 点击购买](https://www.fakajun.com/space/1776898375.html)
 
 #### 若不会自助购买，或付款不成功，请直接在奥豆咨询购买
